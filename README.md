@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **Shakambharihitft36@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFaKTx9KdA/IkkCWXW6S0S768QmbhVSaw/edit?utm_content=DAFaKTx9KdA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFaKTx9KdA/IkkCWXW6S0S768QmbhVSaw/edit?utm_content=DAFaKTx9KdA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1-i4RGQkMRZFG4PpJJQOAuCsFJ7HkqFD0/view?usp=sharing](https://drive.google.com/file/d/1-i4RGQkMRZFG4PpJJQOAuCsFJ7HkqFD0/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
