@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **MySQL**
 
-- 👨‍💻 All of my projects are available at [https://sonal029.github.io/](https://sonal029.github.io/)
+- 👨‍💻 All of my works are available at [https://sonal029.github.io/](https://sonal029.github.io/)
 
 - 📝 I regularly write articles on [https://www.linkedin.com/in/shakambhari-40a788264/](https://www.linkedin.com/in/shakambhari-40a788264/)
 
