@@ -1,5 +1,5 @@
 # 💫 Hey there, I'm Shakambhari
-<br><br>🌱 I’m currently learning about Java, Data structures and Algorithms.<br>👯 I’m looking to collaborate on Open Source projects<br>🤔 I’m looking for help with anything I am currently working on.<br>💬 Ask me about anything JAVA, HTML, CSS, JavaScript...<br>⚡ Fact: Coding is like a sport, you may know the rules but you have to play to learn.<br> 💻 Know more about me <a href="https://sonal029.github.io/">Portfolio</a>
+<br><br>🌱 I’m currently learning about Java, Data structures and Algorithms.<br>👯 I’m looking to collaborate on Open Source projects<br>🤔 I’m looking for help with anything I am currently working on.<br>💬 Ask me about anything JAVA, HTML, CSS, JavaScript...<br>⚡ Fact: Coding is like a sport, you may know the rules but you have to play to learn.<br> 💻 Know more about me [Porfolio](https://sonal029.github.io)
 
 
 ## 🌐 Socials:
